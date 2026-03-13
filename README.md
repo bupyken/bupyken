@@ -8,4 +8,4 @@ I LOVE MY SILLY BOI KEONHO SMM
 
 ᛝ uncomfortable around strangers, so i dont talk much. 
 
-![gif](https://i.pinimg.com/736x/41/bf/06/41bf0637c6410b44472fa9c7c85406ca.jpg)
+![gif](https://i.pinimg.com/736x/32/eb/bd/32ebbd5f1bf16343f3e6c6042f612b13.jpg)
