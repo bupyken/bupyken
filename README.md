@@ -9,5 +9,5 @@ I LOV MY SILLY BOI KEONHO SMM
 
 ᛝ i'm only 16yo, so u can address me however you like n i dont mind if we get along.
 
-this my bf 👅
-![gif](https://i.pinimg.com/736x/32/eb/bd/32ebbd5f1bf16343f3e6c6042f612b13.jpg)
+actually this my gf and i 😝 @y0ungkeukeu
+![gif](https://i.pinimg.com/736x/92/8b/b3/928bb3e7860f136c23d71b18b55a4239.jpg)
