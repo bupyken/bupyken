@@ -1,6 +1,1 @@
-<img src="https://i.makeagif.com/media/3-29-2026/bugRuP.gif" width="250" align="left"/>
-
-<br><br><br><br><br><br>
-&nbsp;&nbsp;&nbsp;these silly boys
-
-<br clear="left"/>
+![img](https://i.pinimg.com/736x/9a/c1/5e/9ac15e02c7046f7425c7023b479f3fd4.jpg)
