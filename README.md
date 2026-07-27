@@ -6,5 +6,5 @@
 <p align="center">
 
 <p align="center">
-  <img src="https://i.postimg.cc/Vk8vMgR0/Khong-Co-Tieu-De762-20260511181556.png" width="650"/>
+  <img src="https://i.pinimg.com/1200x/8a/3a/51/8a3a51c8608e10a4a673116c0dfc4470.jpg" width="650"/>
 </p>
